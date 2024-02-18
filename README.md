@@ -1,1 +1,1 @@
-# sohnsyoung.github.io
+# sohnsoyoung.github.io
